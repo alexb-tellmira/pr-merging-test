@@ -1,2 +1,2 @@
 There once was a ship that put to sea
-TODO: finish this verse
+The name of the ship was Billy O'Tea
